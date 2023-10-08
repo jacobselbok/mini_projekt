@@ -1,3 +1,4 @@
 Mit analogt ur
 
-[analogt_ur](https://github.com/jacobselbok/mini_projekt/assets/144399384/1c5d771e-ae02-4f2d-a134-d3fdcdf9378a)
+
+<img width="399" alt="Skærmbillede 2023-10-08 234842" src="https://github.com/jacobselbok/mini_projekt/assets/144399384/78f9b3a7-e53c-4504-9c11-5731ce236ecf">
